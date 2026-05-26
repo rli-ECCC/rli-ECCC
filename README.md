@@ -1,4 +1,4 @@
-Systems Developer @ Environment and Climate Change Canada
+Systems Developer Intern @ Environment and Climate Change Canada
 
 <!-- [Environment and Climate Change Canada](https://www.canada.ca/en/environment-climate-change.html) -->
 
